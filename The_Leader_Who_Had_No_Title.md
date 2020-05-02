@@ -6,8 +6,8 @@ You need no title to be a leader
 
 **5 Roles**
 
-I importance of innovation
-M 
-U
-C
-H
+**I - Inovation ** importance of innovation
+**M** 
+**U**
+**C**
+**H**
