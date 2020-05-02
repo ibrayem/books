@@ -8,7 +8,7 @@ You need no title to be a leader
 
 **I - Inovation** importance of innovation
 
-**M**
+**M - Mastery** mastery your craft
 
 **U**
 
